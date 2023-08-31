@@ -1,1 +1,3 @@
 Durante la clase del viernes 11/08, con mi compañero, Agustín Monsalve, tocamos varios puntos relacionados con lo que sería nuestro proyecto. Salieron temas relacionados con la Salud Mental en los adolescentes, una nueva serie del universo de El Señor de los Anillos, pero nos decantamos por el desarrollo de los Juegos Panamericanos. ¿Por qué? Porque es un evento que nos permite cubrirlo a lo largo de todo el semestre y porque, tanto yo como Edward (tercer integrante del grupo, que no estaba el día de la lluvia de ideas), somos apasionados del deporte en general y, en otros ramos, también cubriremos la cita panamericana, lo que nos da la oportunidad de aprovechar de mejor manera nuestros recursos, nuestro tiempo y, sobre todo, nuestras fuentes.
+
+**Jorge Fuentes**
